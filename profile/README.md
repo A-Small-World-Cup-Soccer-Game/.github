@@ -2,6 +2,8 @@
 
 ### ⚽ What is A Small World Cup Unblocked?
 
+## <a href="https://izigames.net/a-small-world-cup/">👉 Play A Small World Cup Soccer Unblocked 👈</a>
+
 **A Small World Cup** is a **classic retro-style football game** where tiny pixelated teams compete in a hilarious and action-packed mini soccer championship. Whether you're a casual gamer or a hardcore football fan, this game delivers a **blazing mix of skill, fun, and madness** right in your browser.
 
 Because it’s **unblocked**, you can play it at school, work, or anywhere without restrictions. It's perfect for quick breaks or long gaming sessions.
